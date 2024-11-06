@@ -1,1 +1,1 @@
-Calculation for MVP or MINI Ragnarok X
+Calculation for MVP or MINI for Ragnarok Next Generation
