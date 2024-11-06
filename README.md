@@ -1,1 +1,1 @@
-"# ihxme.github.io" 
+Calculation for MVP or MINI Ragnarok X
